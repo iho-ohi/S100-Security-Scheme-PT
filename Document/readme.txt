@@ -1,2 +1,2 @@
-Please share working documents via the folder
+Please share working documents.
 
